@@ -1,1 +1,1 @@
-# Likelion Mid Projectt
+# Likelion Mid Project
